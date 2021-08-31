@@ -1,5 +1,3 @@
-# Welcome on my Github space
-
 ## 👋 Who I am ?
 Hi, I’m @wolffouille, my name is Dimitri and I'm 21 years old. I am a newcomer to the world of programming.
 
