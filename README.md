@@ -24,7 +24,7 @@ I’m currently learning:
 I am open to all proposals for work and collaboration. :D
 
 ## 📫 Contact me
-Mail: deletang.dimitri@protonmail.com
+Mail: d1m1tr1.d3l3tang@gmail.com
 Discord: Wolffouille#3260
 
 <!---
